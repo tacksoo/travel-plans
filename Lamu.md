@@ -1,4 +1,4 @@
-# Lamu
+# Lamu, Kenya. 
 
 Lamu is a beautiful East African coastal town located on Kenya's coast, representing one of the oldest and best-preserved Swahili settlements in East Africa. This historic UNESCO World Heritage Site is a must-visit destination for history enthusiasts and cultural explorers.
 
